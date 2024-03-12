@@ -46,4 +46,4 @@ Ahmad Ikhdair
 - LinkedIn - [Ahmad Ikhdair](https://www.linkedin.com/in/ahmad-ikhdair/)
 
 Ozlem Nur Yuksel
-- LinkedIN - [Ozlem Nur](www.linkedin.com/in/özlem-nur-146941205)
+- LinkedIn - [Ozlem Nur](www.linkedin.com/in/özlem-nur-146941205)
